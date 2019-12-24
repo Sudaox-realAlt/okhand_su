@@ -1,2 +1,0 @@
-# okhand_su
-sutart
